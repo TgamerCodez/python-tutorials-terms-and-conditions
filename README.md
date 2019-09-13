@@ -1,1 +1,0 @@
-# python-tutorials-terms-and-conditions
